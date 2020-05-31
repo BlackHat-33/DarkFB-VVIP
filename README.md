@@ -1,2 +1,4 @@
 # DarkFB-VVIP
-Halllo
+Perkenalkan saya KingTebe
+wasap aing
+082121902263
